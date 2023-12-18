@@ -1,3 +1,3 @@
-# happy-Birthday-wishes-card-project-
+QR LEA
 
 Free to use you can just copy code and use your own way.
